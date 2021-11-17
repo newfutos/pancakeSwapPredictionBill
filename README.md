@@ -1,3 +1,6 @@
+# Please add me as an Agent Developer [Published] on Discord, my discord username is papafutos#3722
+
+
 # PakkaceSwap Prediction Agent
 
 ## Description
